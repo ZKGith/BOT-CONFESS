@@ -6,7 +6,7 @@
 ------
 
 <p align="center">
-  <a href="https://youtu.be/Z4e35_hyF34"><img src="https://telegra.ph/file/cc9388bd2eb8066f92d2e.jpg" />
+  <a href="https://youtu.be/neJRub61qGA" />
 </p>
 <br>
 
